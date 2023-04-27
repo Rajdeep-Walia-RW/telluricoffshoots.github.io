@@ -1,1 +1,0 @@
-# telluricoffshoots.github.io
